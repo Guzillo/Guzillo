@@ -7,4 +7,4 @@
 
 ---
 
-📫 **Connect:** [LinkedIn](https://www.linkedin.com/in/norbert-gu%C5%BA/)
+📫 **Connect:** [LinkedIn](https://www.linkedin.com/in/norbert-guz/)
